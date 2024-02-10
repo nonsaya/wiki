@@ -89,3 +89,6 @@ A selection of OpenIPC videos on YouTube
 ### Joshua Bardwell
 
 - [OpenIPC - FPV DRONE NEWS AUG 29 2023](https://www.youtube.com/watch?v=MRxxOGuZUq8&t=2298s)
+
+  ### Yuji Inoue
+  
